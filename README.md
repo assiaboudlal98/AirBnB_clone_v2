@@ -1,1 +1,1 @@
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pngegg.com%2Fen%2Fpng-ewlan&psig=AOvVaw0_HGaX0ppbQ_TneqeJwbCy&ust=1714052774422000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLDJxaj-2oUDFQAAAAAdAAAAABAE
+https://e7.pngegg.com/pngimages/698/122/png-clipart-airbnb-logo-hotel-accommodation-bed-and-breakfast-hotel-text-service.png
